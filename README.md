@@ -69,4 +69,4 @@ If the application's functionality or privacy practices change, this policy will
 
 For questions about this privacy policy, contact:
 
-**Email:** [Your contact email address]
+**Email:** [bccrute@gmail.com]
